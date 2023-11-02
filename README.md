@@ -1,2 +1,2 @@
 # IHaveKilledThreeDogs
-This is my fourth attempt. I really feel like we've been left to figure this one out on our own, and it's very frustratin.
+This is my fourth attempt. I really feel like we've been left to figure this one out on our own, and it's very frustratin. You guys really couldn't have written a fuller section about this stuff yourself?'
